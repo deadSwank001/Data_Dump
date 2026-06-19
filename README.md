@@ -11,7 +11,7 @@ Thanks
 
 
 []
-I'm also adding in : my old Xwitter account data: it's been scraped and cleaned. If you don't want your uname- from 2020 - listed. I can take it down.
+I'm also adding in : my old Xwitter account (BickleRick) data: it's been scraped and cleaned. If you don't want your uname- from 2020 - listed. I can take it down.
 These users are really hard to find- trust me.
 
 : it hadn't been edited since November 11th 2025. : When those dirty X-AI devs saw me coming with my fun idea.....
