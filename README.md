@@ -20,3 +20,7 @@ These users are really hard to find- trust me.
 
 : it hadn't been edited since November 11th 2025. : When those dirty X-AI devs saw me coming with my fun idea.....
 --hooligans.
+
+
+Loosely inspired by Zip2 ; by Elon Musk n Company.
+<img width="720" height="672" alt="image" src="https://github.com/user-attachments/assets/d9dcfa94-8aa6-4396-8b00-f9c210365a19" />
