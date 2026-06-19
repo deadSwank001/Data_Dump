@@ -4,9 +4,13 @@ They provide marketing for the cutting edge of human technology. Then I fed the 
 
 I call it Project YellowPages. or User-Finder-Experience. : you can use this resource to better network. Help me keep the economy running.
 
+The Progression was from :
+B-raz Index.csv to -> .csv(2) to B-Raz Index Orgo].
+
 : send e-mails to User-Finder-Experience@proton.me and we will help you find the necessary people you are looking for.
 
 Thanks
+
 
 
 
